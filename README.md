@@ -5,7 +5,7 @@ Call me : Kuma / Bamboo / Ta-ke(竹)🎍
 I am currently studying **Information Technology at KMITL**💻✨
 
 ### 🐼 About Me! <a href="https://facebook.com/yaowapa.thawornwiriyanan.5"><img src="https://raw.githubusercontent.com/rahulbanerjee26/githubProfileReadmeGenerator/main/icons/facebook.svg" width="16" height="16" /></a>  <a href="https://instagram.com/bemaly_kuma.197"><img src="https://raw.githubusercontent.com/rahulbanerjee26/githubProfileReadmeGenerator/main/icons/instagram.svg" width="16" height="16" /></a>
-- 歌い手 [ KnightA, AMPTAKxCOLORS, Seven's Proud ] ❤️Red Member Lover❤️
+- 歌い手 [ KnightA, AMPTAKxCOLORS, Ⱥstral ] ❤️Red Member Lover❤️
 - I have a sweet tooth 🦷🍭
 - I want to succeed in many things💻
 
